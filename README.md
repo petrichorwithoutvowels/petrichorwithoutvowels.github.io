@@ -1,2 +1,2 @@
 # petrichorwithoutvowels.github.io
-bullshit of mine
+peaceful and nothing!
